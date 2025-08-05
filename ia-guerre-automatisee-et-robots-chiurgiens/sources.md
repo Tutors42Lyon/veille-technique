@@ -1,1 +1,1 @@
-
+- Video [EN]: [War is a Laboratory for AI with Paul Scharre](https://youtu.be/6C_Bw4eZxrE?si=NYPsgSsoXG8hwd8I)
